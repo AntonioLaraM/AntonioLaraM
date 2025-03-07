@@ -4,7 +4,7 @@
 - 💞️ I'm actively looking for a job where I can use my research abilities.
 - 📫 You can reach me via email lara.marnier@gmail or via LinkedIn 
 - 😄 Pronouns: He/Him
-- Languages : Spanish (Native), English (C1), Portuguese (B2), French (B2), Catalan (A2) and Mandarin (HSK2).
+- 🤓 Languages : Spanish (Native), English (C1), Portuguese (B2), French (B2), Catalan (A2) and Mandarin (HSK2).
 - ⚡ Fun fact: I love cooking Italian food and riding my bike in the city.
 
 <!---
